@@ -51,12 +51,35 @@ Resilience
 \- [getresilient.us](https://getresilient.us)  
 \- [edumarklearning.org](https://edumarklearning.org/)  
 \- [safetyonline.live](https://safetyonline.live/)  
-**Join my discord for more links to any proxy!**
+
+* * *
+
+Ludicrous
+----------
+
+
+### [Main link](https://ludicrous.gq/)
+
+**More links if the main one was blocked:**
+
+\- [chemistryhelp.org](https://chemistryhelp.org/)  
+\- [conventionalize.org](https://conventionalize.org/)  
+\- [cattlefood.org](https://cattlefood.org/)
+\- [bhutanfacts.xyz](https://bhutanfacts.xyz/)
+\- [ensuremath.com](https://ensuremath.com)
+\- [manualcars.net](https://manualcars.net/)
+\- [ludicrous911.info](https://ludicrous911.info/)
+\- [creativehog.com](https://creativehog.com/)
+\- [languagetips.net](https://languagetips.net/)
+\- [ludicrousdev.org](https://ludicrousdev.org/)
+\- [nothernschools.digital](https://nothernschools.digital/)
+\- [the-t-fr.com](https://the-t-fr.com/)
 
 * * *
 
 Degeneracy
 ----------
+
 
 ### [Main link](https://pleasedontblock.me)
 
