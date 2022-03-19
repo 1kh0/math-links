@@ -49,6 +49,25 @@ Resilience
 \- [edumarklearning.org](https://edumarklearning.org/)  
 \- [safetyonline.live](https://safetyonline.live/)  
 
+The Simple Unblocker
+----------
+
+## [Main link](https://thesimpleunblocker.com/)
+
+**More links if the main one was blocked:**
+
+\- [simplewallpaper.cf](https://simplewallpaper.cf/)
+\- [simplewallpapers.cf](https://simplewallpapers.cf/)
+\- [simplemathhelper.tk](https://simplemathhelper.tk/)
+\- [thesimpleunblocker.cf](https://thesimpleunblocker.cf/)
+\- [142.202.221.44](https://142.202.221.44/)
+\- [simplescience.design](https://simplescience.design/)
+\- [simplemathhelp.net](https://simplemathhelp.net/)
+\- [simpleregistry.repair](https://simpleregistry.repair/)
+\- [reg.rocks](https://reg.rocks/)
+\- [summerplans.me](https://summerplans.me/)
+\- [summerplans.xyz](https://summerplans.xyz/)
+
 Ludicrous
 ----------
 
