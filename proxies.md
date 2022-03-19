@@ -58,7 +58,7 @@ Ludicrous
 ----------
 
 
-### [Main link](https://ludicrous.gq/)
+### [Main link](https://ludiub.com/)
 
 **More links if the main one was blocked:**
 
