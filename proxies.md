@@ -38,11 +38,8 @@ HyperTabs
 \- [abcooking.ml](https://abcooking.ml/)  
 \- [goguardian.school](https://goguardian.school)  
 
-* * *
-
 Resilience
 ----------
-
 
 ### [Main link](https://resilience.cx)
 
@@ -52,11 +49,8 @@ Resilience
 \- [edumarklearning.org](https://edumarklearning.org/)  
 \- [safetyonline.live](https://safetyonline.live/)  
 
-* * *
-
 Ludicrous
 ----------
-
 
 ### [Main link](https://ludiub.com/)
 
@@ -75,11 +69,8 @@ Ludicrous
 \- [nothernschools.digital](https://nothernschools.digital/)
 \- [the-t-fr.com](https://the-t-fr.com/)
 
-* * *
-
 Degeneracy
 ----------
-
 
 ### [Main link](https://pleasedontblock.me)
 
@@ -96,8 +87,6 @@ Degeneracy
 \- [builtincryptominer.com](https://builtincryptominer.com)  
 \- [devioustrolling.com](https://devioustrolling.com)  
 \- [fortniteub.xyz](https://fortniteub.xyz)  
-
-* * *
 
 Nebula
 ------
