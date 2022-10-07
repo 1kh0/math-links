@@ -1,7 +1,7 @@
 Holy Unblocker
 --------------
 
-\- [holyubofficial.net](https://holyubofficial.net/)
+\- [holyubofficial.net](https://holyubofficial.net/)  
 \- [winterguide.org.uk](https://winterguide.org.uk/)  
 \- [analystinn.net](https://analystinn.net/)  
 \- [treatyguide.com](https://treatyguide.com/)  
@@ -36,7 +36,7 @@ HyperTabs
 Resilience
 ----------
 
-\- [resilience.cx](https://resilience.cx)
+\- [resilience.cx](https://resilience.cx)  
 \- [getresilient.us](https://getresilient.us)  
 \- [edumarklearning.org](https://edumarklearning.org/)  
 \- [safetyonline.live](https://safetyonline.live/)  
@@ -44,40 +44,40 @@ Resilience
 The Simple Unblocker
 ----------
 
-\- [thesimpleunblocker.com](https://thesimpleunblocker.com/)
-\- [simplewallpaper.cf](https://simplewallpaper.cf/)
-\- [simplewallpapers.cf](https://simplewallpapers.cf/)
-\- [simplemathhelper.tk](https://simplemathhelper.tk/)
-\- [thesimpleunblocker.cf](https://thesimpleunblocker.cf/)
-\- [142.202.221.44](https://142.202.221.44/)
-\- [simplescience.design](https://simplescience.design/)
-\- [simplemathhelp.net](https://simplemathhelp.net/)
-\- [simpleregistry.repair](https://simpleregistry.repair/)
-\- [reg.rocks](https://reg.rocks/)
-\- [summerplans.me](https://summerplans.me/)
-\- [summerplans.xyz](https://summerplans.xyz/)
+\- [thesimpleunblocker.com](https://thesimpleunblocker.com/)  
+\- [simplewallpaper.cf](https://simplewallpaper.cf/)  
+\- [simplewallpapers.cf](https://simplewallpapers.cf/)  
+\- [simplemathhelper.tk](https://simplemathhelper.tk/)  
+\- [thesimpleunblocker.cf](https://thesimpleunblocker.cf/)  
+\- [142.202.221.44](https://142.202.221.44/)  
+\- [simplescience.design](https://simplescience.design/)  
+\- [simplemathhelp.net](https://simplemathhelp.net/)  
+\- [simpleregistry.repair](https://simpleregistry.repair/)  
+\- [reg.rocks](https://reg.rocks/)  
+\- [summerplans.me](https://summerplans.me/)  
+\- [summerplans.xyz](https://summerplans.xyz/)  
 
 Ludicrous
 ----------
 
-\- [ludiub.com](https://ludiub.com/)
-\- [chemistryhelp.org](https://chemistryhelp.org/)  
+\- [ludiub.com](https://ludiub.com/)  
+\- [chemistryhelp.org](https://chemistryhelp.org/)   
 \- [conventionalize.org](https://conventionalize.org/)  
-\- [cattlefood.org](https://cattlefood.org/)
-\- [bhutanfacts.xyz](https://bhutanfacts.xyz/)
-\- [ensuremath.com](https://ensuremath.com)
-\- [manualcars.net](https://manualcars.net/)
-\- [ludicrous911.info](https://ludicrous911.info/)
-\- [creativehog.com](https://creativehog.com/)
-\- [languagetips.net](https://languagetips.net/)
-\- [ludicrousdev.org](https://ludicrousdev.org/)
-\- [nothernschools.digital](https://nothernschools.digital/)
-\- [the-t-fr.com](https://the-t-fr.com/)
+\- [cattlefood.org](https://cattlefood.org/)  
+\- [bhutanfacts.xyz](https://bhutanfacts.xyz/)  
+\- [ensuremath.com](https://ensuremath.com)  
+\- [manualcars.net](https://manualcars.net/)  
+\- [ludicrous911.info](https://ludicrous911.info/)  
+\- [creativehog.com](https://creativehog.com/)  
+\- [languagetips.net](https://languagetips.net/)  
+\- [ludicrousdev.org](https://ludicrousdev.org/)  
+\- [nothernschools.digital](https://nothernschools.digital/)  
+\- [the-t-fr.com](https://the-t-fr.com/)  
 
 Degeneracy
 ----------
 
-\- [pleasedontblock.me](https://pleasedontblock.me/)  
+\- [pleasedontblock.me](https://pleasedontblock.me/)   
 \- [epicedufinder.org](https://epicedufinder.org/)  
 \- [nicecollege.org](https://nicecollege.org/)  
 \- [amongussussybaka.org](https://amongussussybaka.org/)  
