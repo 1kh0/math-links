@@ -42,17 +42,12 @@ Holy Unblocker
 HyperTabs
 ---------
 
-- [qualitymath.us](https://qualitymath.us/)
 - [abcooking.ml](https://abcooking.ml/)
-- [goguardian.school](https://goguardian.school)
 
 Resilience
 ----------
 
-- [resilience.cx](https://resilience.cx)
 - [getresilient.us](https://getresilient.us)
-- [edumarklearning.org](https://edumarklearning.org/)
-- [safetyonline.live](https://safetyonline.live/)
 
 The Simple Unblocker
 ----------
@@ -91,8 +86,6 @@ Degeneracy
 ----------
 
 - [pleasedontblock.me](https://pleasedontblock.me/)
-- [epicedufinder.org](https://epicedufinder.org/)
-- [nicecollege.org](https://nicecollege.org/)
 - [amongussussybaka.org](https://amongussussybaka.org/)
 - [lq16.democrat](https://lq16.democrat/)
 - [goodsciencehelp.com](https://goodsciencehelp.com)
