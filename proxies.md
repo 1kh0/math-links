@@ -1,8 +1,7 @@
 Holy Unblocker
 --------------
 
-### [Main link](https://holyubofficial.net/)
-
+\- [holyubofficial.net](https://holyubofficial.net/)
 \- [winterguide.org.uk](https://winterguide.org.uk/)  
 \- [analystinn.net](https://analystinn.net/)  
 \- [treatyguide.com](https://treatyguide.com/)  
@@ -30,10 +29,6 @@ Holy Unblocker
 HyperTabs
 ---------
 
-### [Main link](https://titaniumnetwork.org/)
-
-**More links if the main one was blocked:**
-
 \- [qualitymath.us](https://qualitymath.us/)  
 \- [abcooking.ml](https://abcooking.ml/)  
 \- [goguardian.school](https://goguardian.school)  
@@ -41,10 +36,7 @@ HyperTabs
 Resilience
 ----------
 
-### [Main link](https://resilience.cx)
-
-**More links if the main one was blocked:**
-
+\- [resilience.cx](https://resilience.cx)
 \- [getresilient.us](https://getresilient.us)  
 \- [edumarklearning.org](https://edumarklearning.org/)  
 \- [safetyonline.live](https://safetyonline.live/)  
@@ -52,10 +44,7 @@ Resilience
 The Simple Unblocker
 ----------
 
-## [Main link](https://thesimpleunblocker.com/)
-
-**More links if the main one was blocked:**
-
+\- [thesimpleunblocker.com](https://thesimpleunblocker.com/)
 \- [simplewallpaper.cf](https://simplewallpaper.cf/)
 \- [simplewallpapers.cf](https://simplewallpapers.cf/)
 \- [simplemathhelper.tk](https://simplemathhelper.tk/)
@@ -71,10 +60,7 @@ The Simple Unblocker
 Ludicrous
 ----------
 
-### [Main link](https://ludiub.com/)
-
-**More links if the main one was blocked:**
-
+\- [ludiub.com](https://ludiub.com/)
 \- [chemistryhelp.org](https://chemistryhelp.org/)  
 \- [conventionalize.org](https://conventionalize.org/)  
 \- [cattlefood.org](https://cattlefood.org/)
@@ -91,10 +77,7 @@ Ludicrous
 Degeneracy
 ----------
 
-### [Main link](https://pleasedontblock.me)
-
-**More links if the main one was blocked:**
-
+\- [pleasedontblock.me](https://pleasedontblock.me/)  
 \- [epicedufinder.org](https://epicedufinder.org/)  
 \- [nicecollege.org](https://nicecollege.org/)  
 \- [amongussussybaka.org](https://amongussussybaka.org/)  
@@ -110,8 +93,7 @@ Degeneracy
 Nebula
 ------
 
-### [Main Link](https://www.nebulaofficial.gq/)
-
+\- [www.nebulaofficial.gq](https://www.nebulaofficial.gq/)
 \- [neb.anirudhiscool.repl.co/](https://neb.anirudhiscool.repl.co/)  
 \- [www.nebdev.xyz/](https://www.nebdev.xyz/)  
 \- [neb.flukehusky.repl.co](https://neb.flukehusky.repl.co/)  
